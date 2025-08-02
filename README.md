@@ -22,7 +22,7 @@
 * Then there was inspiring speeches from Principal Sir , Hod , chief Guest and Faculty members.
   * FIrst **Mr. Harsimarn singh** aware us about college and its achievement .
   * Then Hod of applied science **Dr. Harpreet Kaur Grewal** address us about our department and our branch.
-  * Then Our respectable Principle sir **Dr. Sehijpal Singh** address us about college and its national , international  achievements.
+  * Then Our respectable Principle sir **Dr. Sehijpal Singh** highlighted the college’s excellence, global ties, and notable achievements.
   * After then other Chief Guest **Ravinder Garg (Chief Engineer, Municipal Corporation, Ludhiana)** and faculty member address us and our Alumni **Rakesh Kumar (Batch 1991)** also address us.
   * THen after that Faculty member and principal sir felicitate our chief guests for gracing the occasion.
   * Affter then there was a finance speech by Shri Ravender Garj
