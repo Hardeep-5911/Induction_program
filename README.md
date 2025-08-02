@@ -25,7 +25,7 @@
   * Then Our respectable Principle sir **Dr. Sehijpal Singh** highlighted the college’s excellence, global ties, and notable achievements.
   * After then other Chief Guest **Ravinder Garg (Chief Engineer, Municipal Corporation, Ludhiana)** and faculty member address us and our Alumni **Rakesh Kumar (Batch 1991)** also address us.
   * THen after that Faculty member and principal sir felicitate our chief guests for gracing the occasion.
-  * Affter then there was a finance speech by Shri Ravender Garj
+  * Affter then there was a finance speech by Finence Expert
   * After then we all go for lunch.
   * After Luch There we have a Mentorship program and our department visit.
   * During our department visit we see so many labs our classroom . We all were told about our college clubs and also about placement details ,what to do to get good placement.
